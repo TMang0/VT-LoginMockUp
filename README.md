@@ -6,7 +6,7 @@
 
 ## Capturas de Pantalla
 
-[![Ver Demo en YouTube](https://img.youtube.com/vi/5pzsvbso39I/0.jpg)](https://youtu.be/5pzsvbso39I)
+[![Ver Demo en YouTube](https://img.youtube.com/vi/UHnLIj8lrx4/0.jpg)](https://youtube.com/shorts/UHnLIj8lrx4?feature=share)
 
 ## Funcionalidades
 
